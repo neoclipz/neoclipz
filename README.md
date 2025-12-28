@@ -18,4 +18,4 @@ interests:
 
 dead by daylight, RWBY, final fantasy 7
 fortnite, overwatch, minecraft
-kingdom hearts, danganronpa, life is strange    STRANGER THINGS 
+kingdom hearts, danganronpa, life is strange      STRANGER THINGS 
